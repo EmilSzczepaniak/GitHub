@@ -45,5 +45,7 @@ I am grateful for the chance to showcase my skills and experience.
 I appreciate the chance.
 Please let me know if you need any additional information from me. Once again, thank you for considering me for this opportunity and I look forward to hearing back from you soon.
 
+
+
 Best regards,
-[Emil Szczepaniak]
+Emil Szczepaniak
